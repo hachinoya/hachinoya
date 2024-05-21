@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/6b98a3222767056fb93601408442f7b4/9f5f9f09729c252e-ba/s400x600/34f48fcbec3ec8462796c2dca3382646daba7b80.gif)
+<p align="center"![](https://64.media.tumblr.com/6b98a3222767056fb93601408442f7b4/9f5f9f09729c252e-ba/s400x600/34f48fcbec3ec8462796c2dca3382646daba7b80.gif)
 
 
 ![](https://external-media.spacehey.net/media/s3eLmbG7byrAzTN5vVca7gnTm4I5JMjy6SOO_EA4c36E=/https://64.media.tumblr.com/ab70cdecf00da11d149711a4d14a6c18/tumblr_pe6xjbYQXO1xy0eh3o3_100.gif) ![](https://64.media.tumblr.com/5d0aa9a9e0a3f4af98f336dbe5a6641b/c1a57e8f42a67571-c1/s100x200/8fbe97c449af5570ed8755c1b034341b9fe5ca13.gif) ![](https://wilardo.crd.co/assets/images/gallery16/e266f63b.png?v=d19c95ca) ![](https://raining-starss.neocities.org/pastel%20(20).png)
